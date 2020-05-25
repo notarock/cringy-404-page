@@ -1,4 +1,4 @@
-# Uh oh!
+# Uh oh! (Please star the repo if you are using this uwu)
 
 It's that
 
